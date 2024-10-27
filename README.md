@@ -3,7 +3,7 @@
 
 The uncompromising beauty in clarity
 
-Something is beautiful only if it can be seen, and meaningful only if understood. 
+Beauty unveils what is meaningful 
 
 The most beatifully legible typeface that super useful for anything
 
